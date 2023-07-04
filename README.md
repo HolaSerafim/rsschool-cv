@@ -1,1 +1,1 @@
-https://HolaSerafim.github.io/rsschool-cv/
+https://HolaSerafim.github.io/rsschool-cv/cv
